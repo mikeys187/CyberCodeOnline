@@ -2,7 +2,7 @@
 
 \*CyberCode Online is a **browser & mobile based MMORPG game***
 
-CCO is meant to be played casually with AFK tasks, leveling, and crafting. It also includes a huge array of randomly generated enemies, dungeons, and locations pulled from a user-contributed list. The game provides a platform for everyone to have fun and relax!
+CCO is meant officially to be played casually with AFK tasks, leveling, and crafting. However for the initiated a whole bew world appears underneath the framework!👁️2c 👂2 H ear It also includes a huge array of randomly generated enemies, dungeons, and locations pulled from a user-contributed list. The game provides a platform for everyone to have fun and relax!
 
 ### Click [CyberCode Online](https://cybercodeonline.com/) or download the mobile app to start your adventure now!
 
